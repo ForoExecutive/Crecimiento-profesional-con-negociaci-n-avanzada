@@ -1,1 +1,2 @@
 # Crecimiento-profesional-con-negociaci-n-avanzada
+Desarrollar habilidades de negociación fortalece la capacidad de cerrar acuerdos, eleva la confianza y mejora el liderazgo. Un curso avanzado permite aprender técnicas clave y practicar con casos reales, interpretando el lenguaje corporal y adaptando estrategias en tiempo real. Este conocimiento es esencial para un liderazgo eficaz en el ámbito profesional. 
